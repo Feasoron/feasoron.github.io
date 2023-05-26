@@ -11,7 +11,7 @@ How is Chris trying to help our town already?
 # [For Dayton in the Future](https://www.chrisbelangerfordayton.me/for-dayton-in-the-future)
 What are Chris' hopes and ideas for Dayton if you elect him?
 
-# [Make Your Voice Heard! Vote on June 13th!](https://www.chrisbelangerfordayton.me/make-your-voice-heard)
+# [Make Your Voice Heard! Vote June 13th!](https://www.chrisbelangerfordayton.me/make-your-voice-heard)
 Whether you believe Chris is the right choice for our town or not, the only way to have your voice heard is to vote. Make sure you are registered and be heard!
 
 # More Questions? Reach Out!
