@@ -15,4 +15,4 @@ What are Chris' hopes and ideas for Dayton if you elect him?
 Whether you believe Chris is the right choice for our town or not, the only way to have your voice heard is to vote. Make sure you are registered and be heard!
 
 # More Questions? Reach Out!
-Have a pressing question or concern? [Email Chris and Ask!](questions@chrisbelangerfordayton.me)
+Have a pressing question or concern?  Email Chris and Ask! <questions@chrisbelangerfordayton.me>
